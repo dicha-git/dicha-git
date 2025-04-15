@@ -20,7 +20,7 @@
 - 🌐 **Website/Portfolio:** [https://dicha.my.id]  
 - 📸 **Instagram:** [@dicha.ig](https://instagram.com/dicha.ig)  
 - 🐦 **X (Twitter):** [@dicha_x](https://x.com/dicha_x)  
-- 💼 **LinkedIn:** [Dicha Hanggara](https://linkedin.com/in/dicha-in)
+- 💼 **LinkedIn:** [in/dicha-in](https://linkedin.com/in/dicha-in)
 
 ---
 
